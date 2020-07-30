@@ -4,7 +4,7 @@ Pronouns: He/Him
 
 ## Personal sites
 * https://apiratelifefor.me (General and content ownership)
-* https://michaelbox.net (Web development
+* https://michaelbox.net (Web development)
 * https://achooandthesneezes.com (Writing)
 * https://www.buymeacoffee.com/tw2113 (Perhaps I helped you at one point and you're grateful)
 
